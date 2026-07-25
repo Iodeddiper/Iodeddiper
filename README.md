@@ -1,1 +1,1 @@
-![](https://c.tenor.com/tAbRHhhMwAwAAAAC/tenor.gif)
+![](https://adriansblinkiecollection.neocities.org/buttons/d6.gif)
