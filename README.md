@@ -1,1 +1,1 @@
-![](https://adriansblinkiecollection.neocities.org/buttons/d6.gif)
+![](https://64.media.tumblr.com/49919ba5cc8240350062552c5c40020e/7806b539edd0dfa4-1c/s75x75_c1/ec305271ac07f951cfc0569c03fef9e6b13c4a8a.pnj)
